@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a Sr. Data Analyst
+I am a Sr. Data Analyst @ Akal Information Pvt. Ltd.
 
 
 ## 🌐 Socials:
